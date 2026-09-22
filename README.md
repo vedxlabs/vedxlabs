@@ -71,3 +71,4 @@ I'm currently focused on growing from a **Robotics & Automation Engineering back
 I'm always open to **learning, collaborating, and working on interesting projects**.
 
 **Thanks for visiting my profile! 🚀**
+Linkedin:-https://www.linkedin.com/in/ved-ekar-02681437a/
